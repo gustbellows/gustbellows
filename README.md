@@ -1,3 +1,5 @@
+Hi im Kaden, i am an adult male and only use he/him pronouns. i am mentally challenged and physically disabled in otherwords im a SPED SPEEDY SPECIAL NEEDS BOY so i SUCK at typing and controlling my keyboard so i do spelling errors and suck at video games. i use seals to express myself better so i spam images and gifs of them. cool? yay 
+
 <img width="221" height="220" alt="image" src="https://github.com/user-attachments/assets/ec083e63-5a39-4635-b72f-00d8e97bdb51" />
 cr: osaka aquarium kaiyukan
 <img width="188" height="235" alt="image" src="https://github.com/user-attachments/assets/762e75b2-c631-4882-8b12-cb71027a3434" />
